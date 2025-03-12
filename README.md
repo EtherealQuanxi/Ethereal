@@ -2,4 +2,4 @@ felix gay,
 cedric gay,
 kelvin gay,
 galang gay.
-yang baca sedeng
+yang baca punya efek pmo
